@@ -20,7 +20,7 @@ I love exploring vulnerable machines, analyzing exploits, and improving my pract
 ---
 
 ### 📫 How to reach me
-- [LinkedIn](https://linkedin.com/in/rojusaj)  
+- [LinkedIn](https://www.linkedin.com/in/rojus-aj-b3860336a/)  
 - Email: rojusaj777@gmail.com
   
 
